@@ -4,10 +4,10 @@
 
 ### **🌐 立即开启 AI 之旅**
 
-👉 **国内主站点（推荐）：**https://maynorai.top/list/#/home
 
 👉 **海外备用站：**https://chatgpt-plus.top
 
+如果打不开，联系微信客服 coder-maynor
 ------
 
 ### **👇 简单三步，光速上手**
